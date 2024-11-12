@@ -1,0 +1,6 @@
+- Hi, I’m PixelCat00
+- I’m interested in game development and modding
+- I’m currently learning Java
+- Discord: pixelcat0
+- Pronouns: He/Him
+- Fun fact: 99% of gamblers quit right before they hit it big
